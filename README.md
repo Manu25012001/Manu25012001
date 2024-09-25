@@ -1,5 +1,5 @@
 
-# Mohit - AI and Space Exploration Enthusiast
+# Mohit Sharma - AI and Space Exploration Enthusiast
 
 ## About Me
 
